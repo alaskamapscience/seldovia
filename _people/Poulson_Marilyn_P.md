@@ -3,7 +3,7 @@ last_name: Polson
 first_name: Marilyn P.
 maiden_name: DE FOI
 aka: Mary
-birth_date: 1923
+birth_date: 1923-01-12
 birth_location: Seattle, Washington
 death_date: 1963-06-05
 death_location: Seldovia, Alaska
@@ -11,7 +11,7 @@ cemetery: Seldovia City Cemetery
 cemetery_plot: 203
 source_file: Cemetery Directory
 ---
-**Marilyn DE FOI Polson** was was born in Seattle, Washington to Donald and Gladys Fern Cooper De Foi. Her mother died in 1933 and her father remarried, to Bertha PERRY White. 
+**Marilyn DE FOI Polson** was was born in Seattle, Washington on January 12, 1923, to Donald and Gladys Fern COOPER De Foi. Her mother died in 1933 and her father remarried, to Bertha PERRY White. 
 
 In 1942, Marilyn and Neil Calkins had a son, Jack Edward Perry, who was born in Seattle and raised by Marilyn's stepmother's parents, Burton and Martha Perry. Marilyn moved to Alaska in 1951 and in 1952 she and John “Jack” Palmer had a daughter, Patricia, and a son, Michael, followed in 1954.
 
