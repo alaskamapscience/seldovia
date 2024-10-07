@@ -29,6 +29,22 @@ living in Seldovia with her oldest daughter Laura Curtis and next to her
 daughter Charlotte Peck. She died May 23, 1965. Both are buried in the
 Seldovia City Cemetery, Plots \#75 and 76.
 
+**Mrs. Lloyd is Seldovia Landmark**          By Elsa Pederson (Anchorage) Times Correspondent                         
+
+*If Mrs. Susan Lloyd does not preside as a judge in a Seldovia election, it does not seem legal to many of the city’s residents.  For as long as many voters can remember it has been Mrs. Lloyd who handed out the ballots and was ready with any required assistance to the voters.  In her friendly, genial and observant manner, she is as much a landmark at the polls as the ballot box itself.*
+
+*Mrs. Lloyd was born in South Dakota and last May 10 celebrated her 80th birthday.  Age has not claimed her however, and she retains a lively interest in Seldovia affairs as well as keeping house for her son-in-law Carl Nordenson and his three children.  Besides looking after the young children, she finds time to knit afghans for her granddaughters and do delicate fancywork as well as plain sewing.* 
+
+*It was in 1925 that Mrs. Lloyd and her three daughters came to Seldovia, following her husband Theophilus W. Lloyd, who had arrived in the community 9 years earlier.   One daughter remained in their former home but later moved to Seldovia as well.  She is Mrs. Lloyd’s only surviving child, Mrs. Laura Diehl of Anchorage.
+For the first winter the Lloyd family lived on a silver fox farm on the south side of Seldovia Bay, across the bay from the town that was then only a village.  Later the dwelling burned and the family moved to Seldovia where they bought the Seldovia House, a well-known hotel that Mrs. Lloyd operated for more than 20 years.  She was active in the original Women’s Club and an officer of the Seldovia chapter of the American Red Cross, which mad dozens of afgans for  wheel-chair veterans of World War I. 
+Widowed for many years, the dauntless woman assisted in the rearing of most of her 6 grandchildren as well as supporting herself.  She retired in 1947 and moved to a pleasant home overlooking a lake on the Seldovia landward side, appropriately named Lake Susan.*
+
+*Mrs. Lloyd admits to being lonely sometimes now, with many of her friends gone and others too busy or infirm to visit with her.  During the winter months she finds it difficult to get out on the glazed, slippery streets.  There is nothing she enjoys more than a lively game of “Pan” or pinochle and whenever her friends gather, a deck of cards is likely to appear as they sit around the table.*
+
+*The population of Seldovia has changed much in the past few years, and there are many who do not know Mrs. Lloyd.  It is their loss, for she is a fine person and a loyal friend.*
+
+
+
 CHILDREN:
 
 - **Laura LLOYD** was born September 28, 1901 in Jackson, Wyoming. She
