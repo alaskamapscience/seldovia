@@ -33,4 +33,4 @@ full_name: Books
 
 + <a id="seldovia-alaska-by-susan-springer" /> Springer, Susan Woodward. [**_Seldovia Alaska: An Historical Portrait of Life in Herring Bay_**](https://www.worldcat.org/search?q=9781889796031). Littleton, Colorado: Blue Willow, Inc., 1997.
 
-+ Sharpe, Mae Annette Fox. **_My Seldovia - My Life_**. Self-published document on file, Seldovia Public Library 1997
++ Sharp, Mae Annette Fox. **_My Seldovia - My Life_**. (https://sharpgiving.com/MaeSharp/MySeldovia/index.html)
