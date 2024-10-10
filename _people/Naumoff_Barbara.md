@@ -29,7 +29,7 @@ Barbara lived in Kodiak where her husband worked for the Alaska Commercial Compa
 
 When Mount Katmai erupted in 1912, the Kodiak area was buried in ash. Barbara and some of her family left Kodiak on the Cutter "Manning" and moved to Seldovia, where other family members were living. Elizabeth’s (Lizzy) husband James Ward was running “The Swan” a mailboat that also transported freight to the villages around Cook Inlet. 
 
-It was said that [**Bill Rohde**](./Rohde_William.md) and Barbara were on a boat together and drinking when the captain of the ship married them. When Barbara sobered up she was quite upset and wouldn’t live with him in Seldovia. Bill built her a house on the boardwalk, next to the Morris store and he built himself one across the street.
+The family story (https://sharpgiving.com/MaeSharp/) is that [**Bill Rohde**](./Rohde_William.md) and Barbara were on a boat together and drinking when the captain of the ship married them. When Barbara sobered up she was quite upset and wouldn’t live with him in Seldovia. Bill built her a house on the boardwalk, next to the Morris store and he built himself one across the street.
 
 Barbara felt bad about marrying Bill Rohde the way she did. So they went to Kodiak later and re-married. Bill had adopted some of the children of the Baptist Mission orphanage in Wood Island. One was **Annie McCrea**, who was two years old, who married **Fred Bowen** in 1 January 1920.
 
