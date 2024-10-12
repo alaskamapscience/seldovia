@@ -2,7 +2,7 @@
 last_name: Martinson
 first_name: John Fritgof
 birth_date: 1889-01-26
-birth_location: Hunnebostrans, Sweden
+birth_location: Hunnebostrand, Sweden
 death_date: 1946-11-14
 death_location: Seldovia, Alaska
 cemetery: Seldovia City Cemetery
