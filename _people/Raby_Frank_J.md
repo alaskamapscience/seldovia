@@ -20,7 +20,7 @@ Washington and working as a "clerk and oil operator".
 About that time Frank came to Alaska and spent one summer at least
 digging clams at a commercial clamming operation at Tuxedni Bay in Cook
 Inlet. Seldovia resident John Gruber tells the story related by his
-grandfather, Jack English who also hired on at Tuxedni Bay that year:
+grandfather, [**Jack English**](./English_J_P.md) who also hired on at Tuxedni Bay that year:
 "My grandfather said,"I was watching this fella go out at low tide --
 And they had wooden boxes, I think, that they towed. And they might have
 had skegs on ‘em or something. And they would tow these wooden boxes
@@ -50,7 +50,7 @@ older than Winnie, and eventually took ill and died in February 1945.
 Exactly a year later, on February 23, 1946, Frank and Winnie O’Brien
 Young were married in Seldovia. His occupation as listed on the marriage
 application was "storekeeper". He opened a doorway between the two
-stores and
+stores and operated it as one store.
 
 Susan Springer also recounts another story told by former Seldovian Jim
 Busey. Apparently Father Sarikovicoff, a Russian priest "helped to
@@ -62,29 +62,14 @@ store. That’s where it stayed, the debt considered settled. Frank later
 moved this still, or one similar, to his property at Raby’s Spit on the
 west side of Seldovia Bay" (p182)
 
-In 1948 Frank Raby sued Polar Bar owner Joe Hill to recover possession
-of a town lot where the bar stood. It was described as Lot 3, Block One
-of Frank Raby Subdivision of Section Lots 2, 3, and 8 of Section 32,
-Township 8 South, Range 14, West of the Seward Meridian, within the
-incorporated Town of Seldovia, Alaska, and being part of the Fulmore
-Homestead, to which patent was issued November 21, 1930. Frank Raby
-acquired this property in 1945. The evidence showed that beginning with
-one Max Peyser who is said to have been on the land in question prior to
-1924 and through 1941 when the testimony shows Mrs. John J. Roe died,
-each person who lived on the land attempted to transfer his rights
-thereto by bill of sale. Each bill of sale described personal property
-only and each purported to transfer personal property only and none of
-them described land so that it could be determined precisely what land
-was attempted to be transferred. The evidence also shows that Roe's
-predecessors did not transfer the land to their successors by deed, but
-that each of them gave bills of sale to the buildings thereon. John Roe
-gave Joe Hill a bill of sale in 1945 but that was determined not to be a
-transfer of the deed, and Frank Raby prevailed.
+In 1948 Frank Raby sued [**Polar Bar**](../-enterprises/Polar_Bar.md) owner [**Joe Hill**](./Hill_Joe.md) to recover possession
+of a town lot where the bar stood. It was part of the Fulmore
+Homestead, which Frank acquired in 1945. Frank won and Joe Hil was required to vacate the premises within 3 months. 
 
 In 1955 Frank Raby was registered as the owner of the Seldovia Mining
 Company at Red Mountain, chromium prospecting. The company had a crew of
 2 people.
 
 Frank Raby died January 1984 in Seldovia and there is a memorial for him in Plot #95 in the Seldovia City Cemetery that he helped create by donating
-the land to the City of Seldovia in 1934.
+the land to the City of Seldovia in 1934 and 1970.
 
