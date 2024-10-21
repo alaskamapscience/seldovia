@@ -20,7 +20,7 @@ Washington and working as a "clerk and oil operator".
 About that time Frank came to Alaska and spent one summer at least
 digging clams at a commercial clamming operation at Tuxedni Bay in Cook
 Inlet. Seldovia resident John Gruber tells the story related by his
-grandfather, [**Jack English**](./English_J_P.md) who also hired on at Tuxedni Bay that year:
+grandfather, [**Jack English**](./English_John_P.md) who also hired on at Tuxedni Bay that year:
 "My grandfather said,"I was watching this fella go out at low tide --
 And they had wooden boxes, I think, that they towed. And they might have
 had skegs on ‘em or something. And they would tow these wooden boxes
@@ -62,7 +62,7 @@ store. That’s where it stayed, the debt considered settled. Frank later
 moved this still, or one similar, to his property at Raby’s Spit on the
 west side of Seldovia Bay" (p182)
 
-In 1948 Frank Raby sued [**Polar Bar**](../_enterprises/Polar_Bar.md) owner [**Joe Hill**](./Hill_Joe.md) to recover possession
+In 1948 Frank Raby sued [**Polar Bar**](../_enterprises/Polar Bar.md) owner [**Joe Hill**](./Hill_Joe.md) to recover possession
 of a town lot where the bar stood. It was part of the Fulmore
 Homestead, which Frank acquired in 1945. Frank won and Joe Hil was required to vacate the premises within 3 months. 
 
