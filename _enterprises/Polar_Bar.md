@@ -18,5 +18,5 @@ The Polar Bar located on the east side of Main Street and south side of Bay Stre
 
 In 1945, [**Frank Raby**](../_people/Raby_Frank_J.md) obtained a deed to the land owned by the estate of Capt. Filmore/Fulmor, part of which included the land where the Polar Bar sat. Raby took Joe Hill to court (Raby vs. Hill, 11 Alaska 600) and won in June 1948.  Joe Hill was required to vacate the property within 3 months. 
 
-By 1950 the Polar Bar was being operated by **Eni CARSON Allen** who had married Henry Anderson in Seldovia in December 1948.  On their marriage license he was listed as a bar tender but in 1950 census he was a salmon fisherman and Eni was the proprietor of a bar/.
+By 1950 the Polar Bar was being operated by **Eni CARSON Allen** who had married Henry Anderson in Seldovia in December 1948.  On their marriage license he was listed as a bar tender but in 1950 census he was a salmon fisherman and Eni was the proprietor of a bar. Eni operated the Polar Bar right up through the 1964 earthquake when the boardwalk was dismantled for the urban renewal project. 
 
