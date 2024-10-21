@@ -62,7 +62,7 @@ store. That’s where it stayed, the debt considered settled. Frank later
 moved this still, or one similar, to his property at Raby’s Spit on the
 west side of Seldovia Bay" (p182)
 
-In 1948 Frank Raby sued [**Polar Bar**](../_enterprises/Polar_Bar.md) owner [**Joe Hill**](./Hill_Joe.md) to recover possession
+In 1948 Frank Raby sued [**Polar Bar**](../_enterprises/Polar Bar.md) owner [**Joe Hill**](./Hill_Joe.md) to recover possession
 of a town lot where the bar stood. It was part of the Fulmore
 Homestead, which Frank acquired in 1945. Frank won and Joe Hil was required to vacate the premises within 3 months. 
 
