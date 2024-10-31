@@ -13,5 +13,5 @@ source_file: Cemetery Directory
 
 The 60-foot crab fishing vessel *Hellion* disappeared November 23, 1979 with three crewmen aboard.  The vessel departed Dutch Harbor November 22nd to pick up crab pots at sea and deliver them to Beaver Inlet.  A storm with winds to 70 knots and seas to 20 feet came through the following day.  Lost were captain and owner Ronald Hoffman of Seldovia, and crewmembers Walt Laughhead of Seldovia and Aaron Going of Oregon. The F/V Hellion was a 59 ft steel boat built in 1944 in Omaha, Nebraska.
 
-Ron has a memorial in the Seldovia City Cemetery in Plot #261, near other family members.  He is also remembered on the Seafarers' Memorial in Homer.
+While his body was never recovered, Ron has a memorial in the Seldovia City Cemetery in Plot #261, near other family members.  He is also remembered on the Seafarers' Memorial in Homer.
 
