@@ -9,7 +9,7 @@ source_file: Cemetery Directory
 ---
 **Arsiente "Musik" Romanoff's** WWII draft card carries the note: "This man has never attended school one day. He cannot read or write. Cross-eyed.
 
-Musik, the son of **Arsiente Romanoff**, was born about 1912. He was the brother of Barbara Romanoff (Beach). Althouh the City records list Musik as having been buried in the Seldovia City Cemetery, Plot #169, there is no date recorded for his birth or death. US Census records indicate that if he was Arsiente, son of Arsiente, Sr., he was born about 1912 and probably in Seldovia. 
+Musik, the son of **Arsiente Romanoff**, was born about 1912. He was the brother of Barbara Romanoff (Beach). Although the City records list Musik as having been buried in the Seldovia City Cemetery, Plot #169, there is no date recorded for his birth or death. US Census records indicate that if he was Arsiente, son of Arsiente, Sr., he was born about 1912 and probably in Seldovia. 
 
 Perhaps the reason he was called Musik was because he was a notorious harmonica player.  
 
