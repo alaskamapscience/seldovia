@@ -17,14 +17,15 @@ source_file: "Frederick Walter Newmeyer not in cemetery"
 ![](../assets/images/Frederick%20Walter%20Newmeyer%20not%20in%20cemetery/media/image1.jpeg) 
 
 **FREDERICK WALTER NEWMEYER, "FREDDY** was a leap year baby, born February 29, 1928 in San Francisco,
-California, the only child weighing in at 13 pounds in his day. His
-parents were Emma and Fredrick Walter Newmeyer. He graduated from high
-school and shortly after graduation he joined the Army and learned to
-cook and became an excellent baker. After his honorable discharge he took
-up on an ad for a camp cook for Chisnik Canneries (Snug Harbor).
+California, the only child weighing in at 13 pounds in his day. His parents were Emma and Fredrick Walter Newmeyer. Fred, his father, was born in Basel, Switzerland and his mother in Neustettin, Germany.  Fred, Senior must have been a baker in the Old Country, because he was already working as a baker in Austin Texas not long after he arrived in the US in 1923. After he and Emma married they opened their own bakery on Polk Street in San Francisco. 
+>1929: Newmeyer’s Bakery Opens on Polk Street
+>San Francisco has added another bakery, which was formally opened to the public last Saturday. F. Newmeyer is the owner of the new establishment and is prepared to cater to exclusive trade because he has installed in the bakery the most up-to-date machinery to prepare >bread, cakes, pastries and cookies. The bakery, located at 1338 Polk Street, is especially attractive and is kept modern in every detail. Mr. Newmeyer is well known as a baker and has a reputation for the superior quality of ingredients used in the production of his fine >cakes. Birthday and wedding cakes or special orders have Mr. Newmeyer’s personal attention. He has built his business by giving service and promptness to his customers.
 
-Freddy met his wife, Milly (Mildred KAGAK) in downtown Anchorage, and shortly thereafter they
-married. 
+It carried the name Newmeyer’s Bakery long after they sold it and moved to Sonoma County to start another Newmeyer Bakery, which they owned until 1972.   At the time Freddy registered for the WWII draft, his family lived in Healdsburg, California where he was attending school.  He graduated from high school and shortly after graduation he joined the Army and learned to cook and became an excellent baker.  By 1950 Freddy was already working at a French bakery in San Francisco, where he and his wife, JoAnn were living with their children Fred and Sandra.  
+
+He moved to Alaska in 1962 and took up on an ad for a camp cook for Chisnik Canneries (Snug Harbor). 
+
+Freddy met his wife, Milly (Mildred KAGAK) in downtown Anchorage in 1964, and shortly thereafter they married. THey moved to Seldovia where together they owned and operated the Seldovia Lodge. She loved waiting tables and serving customers and he like to bake donuts
 
 ![](../assets/images/061102_NewmeyersNewsPhotoT350.jpg) ![](../assets/images/061102_NewmeyersT350.jpg)
 
