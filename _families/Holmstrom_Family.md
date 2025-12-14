@@ -6,13 +6,7 @@ full_name: "Holmstrom Family"
 **Gustave Edvard Holmstrom** was born in Finland in 1881.  By 1910 he was living in Kenai, Alaska.  The census record lists his parents as both being born in Sweden. IN 1920 Gus was in Seldovia and married to [**Anna Walnusson**](../_people/Holmstrom_Anna_Walmusson.md), daughter of Stephen Walnussen. In 1920 he also received his US Naturalization papers. 
 
 When Gus died in Seldovia on November 7, 1934, the Juneau Empire published the news, calling him "Contrary Gus". 
-"Gustav Holstrom for 30 years a resident of Seldovia passed away on the 7th from sudden attack of heart failure.  He was a native of Finland and about 54 years of age.
-
-Mr. Holstrom, who had appeard in his usual health, dropped dead during the noon hour while on his way to his home.  The funeral service was held on Friday, November 9, with burial in the Seldovia cemetery.  He is surived by Mrs. Holstrom, a daughter and two sons.  Relatives, it is believed, ive in Finland.
-
-As fisherman and cannery worker, Mr. Holstrom had been employed by practically every cannery on Cook Inlet in his service with the San Juan Fishing & Packing Co., covering a span of years.  Last season he worked at Nellie Juan and then the company operated on Kachemak Bay where he was regularly employed, his special post being that of pile driver man.  Before coming to Cook Inlet he fished on the Columbia River with headquarters at Astoria, Oregon.
-
-A kindly, jovial man, he was hailed by the good-natured title of "Contrary Gus" and as a friendly neighbor and resident will be sadly missed by the community."
+    "Gustav Holstrom for 30 years a resident of Seldovia passed away on the 7th from sudden attack of heart failure.  He was a native of Finland and about 54 years of age. Mr. Holstrom, who had appeard in his usual health, dropped dead during the noon hour while on his way to his home.  The funeral service was held on Friday, November 9, with burial in the Seldovia cemetery.  He is survived by Mrs. Holstrom, a daughter and two sons. Relatives, it is believed, live in Finland.  As a fisherman and cannery worker, Mr. Holstrom had been employed by practically every cannery on Cook Inlet in his service with the San Juan Fishing & Packing Co., covering a span of years.  Last season he worked at Nellie Juan and then the company operated on Kachemak Bay where he was regularly employed, his special post being that of pile driver man.  Before coming to Cook Inlet he fished on the Columbia River with headquarters at Astoria, Oregon.  A kindly, jovial man, he was hailed by the good-natured title of "Contrary Gus" and as a friendly neighbor and resident will be sadly missed by the community."
 
 
 Valdez Daily Prospector March 2, 1916
